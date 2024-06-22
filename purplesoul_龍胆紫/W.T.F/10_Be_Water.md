@@ -1,11 +1,12 @@
 # Be Water
 
 ----
-### Empy your mind Be formless,shapeless,like water.
-### you put it into a bottle it becomes the bottle;
-### you put it into the teapot it becomes the teapot.
-### The water can flow or it can crash.
-### Be water my friend
+### Empty your mind. Be formless, shapeless, like water.
+### You put it into a bottle, it becomes the bottle;
+### You put it into the teapot, it becomes the teapot.
+### The water can flow, or it can crash.
+### Be water, my friend.
+
 ### 他来自覆盖着白雪的山顶
 ### 他来自容纳百川的大海
 ### 他路过了绿色的田野和丛林
